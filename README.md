@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![visitors](https://visitor-badge.glitch.me/badge?page_id=page.id)
+
 - #### 😄 Pronouns: Buda Boss/ Yo/ Weh/ Oyaa!!
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=ch1b4d4)](https://github.com/ch1b4d4/github-readme-stats)
