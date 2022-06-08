@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![visitors](https://visitor-badge.glitch.me/badge?page_id=page.id)
+![visitors Here could be: 🤪](https://visitor-badge.glitch.me/badge?page_id=page.id)
 
 - #### 😄 Pronouns: Buda Boss/ Yo/ Weh/ Oyaa!!
 
