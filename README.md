@@ -24,7 +24,7 @@ I have a Masters in Business Management and a Bachelor Degree in Information Tec
 
 
 
-- 📫 How to reach me:
+### 📫 How to reach me:
 1. ### Email: chibudunyiro@gmail.com
 2. ### LinkedIn: (https://www.linkedin.com/in/chibudu-nyiro-51169bb5/)
 
