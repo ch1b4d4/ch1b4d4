@@ -1,6 +1,6 @@
 ### **Hi there 👋**
 
-![visitors Here could be: 🤪](https://visitor-badge.glitch.me/badge?page_id=page.id)
+![visitors Here could be: 🤪](https://visitor-badge.glitch.me/badge?page_id=page.id)  Devil is in the Details 🤪
 
 **Thank you for visiting my Profile, I'm Chibudu Nyiro an Aspiring Data Scientist**
 I have a Masters in Business Management and a Bachelor Degree in Information Technology.
