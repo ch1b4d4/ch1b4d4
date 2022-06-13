@@ -26,7 +26,6 @@ With a Masters degree in Business Management; my major was Organisational Learni
 
 ### 📫 How to reach me:
 1. ### Email: chibudunyiro@gmail.com
-2. ### LinkedIn: (https://www.linkedin.com/in/chibudu-nyiro-51169bb5/)
 
 #### .
 #### .
