@@ -1,3 +1,4 @@
+#### **😄 Pronouns: Buda Boss/ Yo/ Weh/ Oyaa!!**
 ### **Hi there 👋**
 
 ![visitors Here could be: 🤪](https://visitor-badge.glitch.me/badge?page_id=page.id)  :- Devil is in the Details 🤪
@@ -11,7 +12,7 @@ With a Masters degree in Business Management; my major was Organisational Learni
 #### 🌱 I’m currently learning R and Tableau
 #### 👯 I’m looking to collaborate on Data Analytic Projects in Social Sciences
 #### 💬 Ask me about food, marathons, Malindi and comedy
-#### **😄 Pronouns: Buda Boss/ Yo/ Weh/ Oyaa!!**
+
 #### .
 #### .
 
